@@ -1,4 +1,4 @@
-# The-NREGA-and-the-Naxalites-A-Mobilization-Government-Policy-Nexus-in-India
+# The NREGA and the Naxalites: A Mobilization-Government Policy Nexus in India
 
 This page has been prepared to store the supplemental material of the article titled "The NREGA and the Naxalites: A Mobilization-Government Policy Nexus in India", which is currently under revision.
 
